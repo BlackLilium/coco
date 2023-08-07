@@ -1,1 +1,2 @@
-https://oktobat.github.io/coco0807/
+
+https://blacklilium.github.io/coco/
